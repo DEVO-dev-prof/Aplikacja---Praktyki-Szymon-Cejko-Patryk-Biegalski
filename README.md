@@ -1,0 +1,1 @@
+# Aplikacja---Praktyki-Szymon-Cejko-Patryk-Biegalski
